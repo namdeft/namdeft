@@ -1,4 +1,4 @@
-### Hi there 👋
+### Talent is something you make bloom, instinct is something you polish - Oikawa
 
 <!--
 **namdeft/namdeft** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
