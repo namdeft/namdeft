@@ -1,4 +1,5 @@
 ### Talent is something you make bloom, instinct is something you polish.
+### Obsession beats talent every single time.
 
 <!--
 **namdeft/namdeft** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
